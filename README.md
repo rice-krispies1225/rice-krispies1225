@@ -13,7 +13,7 @@ speaking of roleplaying, i'm fine with it, as long as it's not completely out of
 and yeah, that's about it. anyone can interact with me
 
 for folks who have found me through the TADC area:
-i also do not like any ships really. so yeah, basically the same with the undertale/deltarune area. also since the area is so crowded most of the time i might get a bit overwhelmed and not reply unless i'm being whispered to. would still be happy to talk with you though
+i also do not like any ships really. so yeah, basically the same with the undertale/deltarune area. also since the area is so crowded most of the time i might get a bit overwhelmed and not reply unless i'm being whispered to. would still be happy to talk with you though. also the amazing digital circus fandom is really... unhinged, and that's putting it lightly. so yeah that's also part of the reason why i would feel a bit overwhelmed
 
 and... yeah, that's about it. will update when i need to
 
