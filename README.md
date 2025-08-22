@@ -1,6 +1,7 @@
 ## howdy
 
 i like deltarune, undertale, the amazing digital circus, splatoon, stardew valley, kirby, and mario. there is way more but i cannot be bothered to list them all, just know that those are the main things
+i'm also autistic which probably does not come as a surprise for some 
 
 if my status in pony town is looking for chat, that means i'm mostly active and anyone can come talk to me, would prefer if you whispered but you don't really have to, 
 if my status in pony town is looking for roleplay, that means i'm open to being asked to roleplay, 
