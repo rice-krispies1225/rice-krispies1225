@@ -2,9 +2,9 @@
 
 i like deltarune, undertale, the amazing digital circus, splatoon, stardew valley, kirby, and mario. there is way more but i cannot be bothered to list them all, just know that those are the main things
 
-if my status in pony town is looking for chat, that means i'm mostly active and anyone can come talk to me, would prefer if you whispered but you don't really have to
-if my status in pony town is looking for roleplay, that means i'm open to being asked to roleplay
-if my status in pony town is idle, that means i'm VERY afk. you can still whisper or cuddle freely but it might take me a minute or two to respond
+if my status in pony town is looking for chat, that means i'm mostly active and anyone can come talk to me, would prefer if you whispered but you don't really have to, 
+if my status in pony town is looking for roleplay, that means i'm open to being asked to roleplay, 
+if my status in pony town is idle, that means i'm VERY afk. you can still whisper or cuddle freely but it might take me a minute or two to respond, 
 if my status in pony town is busy (which it very often isn't) that means i kinda just want some space, so i might not want to interact
 
 for folks who have found me through the undertale/deltarune area:
