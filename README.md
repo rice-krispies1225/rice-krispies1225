@@ -19,4 +19,4 @@ and... yeah, that's about it. will update when i need to
 
 also if you're wondering who my favourite characters from each of these fandoms are, which you might not be but i don't care, you're here to learn more about me bucko 
 
-for deltarune, it's kris, for undertale, it's mettaton and flowey, for the amazing digital circus it's zooble and jax, for splatoon it's agent 8, for stardew valley it's abigail and sebastian, for kirby it's kirby and meta knight, for mario it changes depending on which character i choose in mario party (usually peach or rosalina though, i had a crush on peach as a child and yet everyone was convinced i was straight... heh, those FOOLS!!)
+for deltarune, it's kris, for undertale, it's mettaton and flowey, for the amazing digital circus it's zooble and jax, for splatoon it's agent 8, for stardew valley it's abigail and sebastian, for kirby it's kirby and meta knight, for mario it changes depending on which character i choose in mario party (usually peach or rosalina though, i had a crush on peach as a child admittedly...)
