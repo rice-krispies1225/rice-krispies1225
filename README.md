@@ -9,7 +9,7 @@ if my status in pony town is idle, that means i'm VERY afk. you can still whispe
 if my status in pony town is busy (which it very often isn't) that means i kinda just want some space, so i might not want to interact
 
 for folks who have found me through the undertale/deltarune area:
-im not a big fan of ships, but i do like suselle. i'm fine if you cuddle with me as any character, as i will not see it as a ship, but please ask if you want to be romantic or roleplay
+im not a big fan of ships, but i do like suselle. i'm fine if you cuddle with me as any character, as i will not see it as a ship, but please ask if you want to be romantic or roleplay.
 speaking of roleplaying, i'm fine with it, as long as it's not completely out of the blue. im fine with you acting in character to me, but if you want to do a more serious and detailed RP ask first
 and yeah, that's about it. anyone can interact with me
 
