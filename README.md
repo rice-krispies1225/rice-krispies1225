@@ -1,23 +1,24 @@
 ## howdy
 
-i like deltarune, undertale, the amazing digital circus, splatoon, stardew valley, kirby, and mario. there is way more but i cannot be bothered to list them all, just know that those are the main things
+i like omori, deltarune, undertale, the amazing digital circus, splatoon, stardew valley, celeste, kirby, and mario. there is way more but i cannot be bothered to list them all, just know that those are the main things
 i'm also autistic which probably does not come as a surprise for some 
 
 if my status in pony town is looking for chat, that means i'm mostly active and anyone can come talk to me, would prefer if you whispered but you don't really have to, 
 if my status in pony town is looking for roleplay, that means i'm open to being asked to roleplay, 
-if my status in pony town is idle, that means i'm VERY afk. you can still whisper or cuddle freely but it might take me a minute or two to respond, 
-if my status in pony town is busy (which it very often isn't) that means i kinda just want some space, so i might not want to interact
+if my status in pony town is idle, that means i'm offtab. you can still whisper or cuddle freely but it might take me a minute or two to respond, 
+if my status in pony town is busy (which it very often isn't) that means i want some space, so i might not want to interact at that moment
 
-for folks who have found me through the undertale/deltarune area:
-im not a big fan of ships, but i do like suselle. i'm fine if you cuddle with me as any character, as i will not see it as a ship, but please ask if you want to be romantic or roleplay.
-speaking of roleplaying, i'm fine with it, as long as it's not completely out of the blue. im fine with you acting in character to me, but if you want to do a more serious and detailed RP ask first
-and yeah, that's about it. anyone can interact with me
+i tend to alternate between areas, since there doesn't seem to be any omori section in pony town and that's what i'm most interested in at the moment :[ i'm usually in the UT/DR section or near the south park section. if you want to cuddle/hide with me or talk to me, you're absolutely free to (especially if you're a fellow omori fan i need more omori people to talk to on pony town) 
 
-for folks who have found me through the TADC area:
-i also do not like any ships really. so yeah, basically the same with the undertale/deltarune area. also since the area is so crowded most of the time i might get a bit overwhelmed and not reply unless i'm being whispered to. would still be happy to talk with you though. also the amazing digital circus fandom is really... unhinged, and that's putting it lightly. so yeah that's also part of the reason why i would feel a bit overwhelmed. the one ship i am okay with is probably google (AKA, gangle x zooble, i know folks call it abstragedy but google sounds goofier and i like goofiness)
+boundaries:
+idk man just don't be a creep or an asshole and you'll be fine. 
+be patient with me as well, because i'm offtab a lot, and if you don't get a response, i'm not intentionally ignoring you, i just didn't see your message
 
-and... yeah, that's about it. will update when i need to
+characters you'll see me cosplaying the most probably:
+HS basil (omori)
+HS/RW aubrey (omori) 
+HS kel (omori)
+kris (deltarune)
+jax (the amazing digital circus)
 
-also if you're wondering who my favourite characters from each of these fandoms are, which you might not be but i don't care, you're here to learn more about me bucko 
-
-for deltarune, it's kris, for undertale, it's mettaton and flowey, for the amazing digital circus it's zooble and jax, for splatoon it's agent 8, for stardew valley it's abigail and sebastian, for kirby it's kirby and meta knight, for mario it changes depending on which character i choose in mario party (usually peach or rosalina though, i had a crush on peach as a child admittedly...)
+and yeah, that's about it, toooodllesss
