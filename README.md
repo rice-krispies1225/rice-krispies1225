@@ -8,6 +8,8 @@ if my status in pony town is looking for roleplay, that means i'm open to being 
 if my status in pony town is idle, that means i'm offtab. you can still whisper or cuddle freely but it might take me a minute or two to respond, 
 if my status in pony town is busy (which it very often isn't) that means i want some space, so i might not want to interact at that moment
 
+feel free to c+h anytime, no need to ask 
+
 i tend to alternate between areas, since there doesn't seem to be any omori section in pony town and that's what i'm most interested in at the moment :[ i'm usually in the UT/DR section or near the south park section. if you want to cuddle/hide with me or talk to me, you're absolutely free to (especially if you're a fellow omori fan i need more omori people to talk to on pony town) 
 
 boundaries:
