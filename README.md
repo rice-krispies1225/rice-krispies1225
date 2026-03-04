@@ -17,7 +17,7 @@ idk man just don't be a creep or an asshole and you'll be fine.
 be patient with me as well, because i'm offtab a lot, and if you don't get a response, i'm not intentionally ignoring you, i just didn't see your message
 
 characters you'll see me cosplaying the most probably:
-HS basil (omori)
+HS/RW basil (omori)
 HS/RW aubrey (omori) 
 HS kel (omori)
 kris (deltarune)
